@@ -10,6 +10,10 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
+* Something interesting about me is I have a addiction to survival / Farming game completeions. 
+* Ask Mr. Vu anything: Hear me out // Does the recreation of a game on a game inside a game count as pirating or copyright?
 * List your sports and extracurriculars you participate in
+    - MERITS
+    - VACC work despite not being in VACC (Viet Booth)
+    - Cyber Patriots Jaintor
+    - FRC (Just learning)
